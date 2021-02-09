@@ -35,3 +35,5 @@
 8.
 
 > 成為本小組成員的最艱難部分 不是自己去冒險 而是眼睜睜看著隊友去冒險卻無能為力
+
+> The future is predetermined by the character of those who shape it
